@@ -58,7 +58,7 @@ My journey started with curiosity for how tech works behind the scenes—and evo
 ### 📫 Let’s Connect:
 
 📧 Email: samiirshad825@gmail.com  
-🔗 LinkedIn: https://www.linkedin.com/in/muhammad-sami-20a21b360/
+🔗 LinkedIn: https://www.linkedin.com/in/muhammadsamiirshad/
 
 ---
 
